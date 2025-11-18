@@ -2,4 +2,20 @@
 
 ![colored header](data:image/svg+xml;base64,PD94bWwgdmVyc2lvbj0iMS4wIiBlbmNvZGluZz0iVVRGLTgiPz4KPHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHdpZHRoPSI5MDAiIGhlaWdodD0iMjYwIiB2aWV3Qm94PSIwIDAgOTAwIDI2MCI+CiAgPHJlY3Qgd2lkdGg9IjEwMCUiIGhlaWdodD0iMTAwJSIgZmlsbD0iIzA3MTAwOSIgLz4KICA8ZyBmb250LWZhbWlseT0iSW50ZXIsIFJvYm90bywgQXJpYWwsIHNhbnMtc2VyaWYiPgogICAgPHRleHQgeD0iNDAiIHk9IjY4IiBmb250LXNpemU9IjQ4IiBmb250LXdlaWdodD0iNzAwIiBmaWxsPSIjMkU5NjJFIj5BQk9VVC1NRTwvdGV4dD4KCiAgICA8dGV4dCB4PSI0MCIgeT0iMTEwIiBmb250LXNpemU9IjE4IiBmaWxsPSIjMTY2MjFDIj5UaGVzZSBhcmUganVzdCB0aGUgbW9yZSBpbXBvcnRhbnQgdGhpbmdzLCB0aGVyZSdzIG1vcmUgYWJvdXQgbWUgb24gbXkgbWFpbiBzdHJhd3BhZ2UhITwvdGV4dD4KICAgIDx0ZXh0IHg9IjQwIiB5PSIxMzIiIGZvbnQtc2l6ZT0iMTgiIGZpbGw9IiMxQzc4MjAiPkdvIGNoZWNrIGl0IG91dCEgVGhhbmsgeW91ISEhITwvdGV4dD4KCiAgICA8dGV4dCB4PSI0MCIgeT0iMTYyIiBmb250LXNpemU9IjE2IiBmaWxsPSIjMEM0MDE2Ij5JZiB3ZSBhcmUgdGFsa2luZyB5b3UgaGF2ZSB0cmlnZ2VycyBvZiBhbnkga2luZCwgb3IganVzdCB3YW50IG1lIHRvIHJlbWVtYmVyIHNvbWV0aGluZyw8L3RleHQ+CiAgICA8dGV4dCB4PSI0MCIgeT0iMTgyIiBmb250LXNpemU9IjE2IiBmaWxsPSIjMEM0MDE2Ij5QTEVBU0UgTEVUIE1FIEtOT1cgRUFSTFkhIEknbGwgZWl0aGVyIGFkZCBpdCB0byB5b3VyIGZyaWVuZCBub3RlIG9yIHBpbiB0aGUgbWVzc2FnZSBzbyBJIHdvbid0IGZvcmdldC48L3RleHQ+CgogICAgPHRleHQgeD0iNDAiIHk9IjIwOCIgZm9udC1zaXplPSIxNiIgZmlsbD0iIzA2MkExOCI+SSBhbHNvIHRhbGsgYSBsb3QsIHNlbmQgaW1hZ2VzLCB3aWxsIGJlIGFjdGl2ZSBhbmQgcmFuZG9tLCBhbmQgY2FuIGJlIHNvcnQgb2YgZnJlYWt5IGF0IHRpbWVzITwvdGV4dD4KICAgIDx0ZXh0IHg9IjQwIiB5PSIyMjgiIGZvbnQtc2l6ZT0iMTYiIGZpbGw9IiMwNjJBMTgiPklmIEkgZG8gc29tZXRoaW5nIHlvdSdyZSB1bmNvbWZvcnRhYmxlIHdpdGgsIGxtayBhbmQgSSdsbCBzdG9wISE8L3RleHQ+CiAgPC9nPgo8L3N2Zz4K)
 
-<!-- text removed to avoid duplication with the colored SVG header -->
+These are just the more important things, there's more about me on my main strawpage!! Go check it out! Thank you!!!!
+
+---
+
+If we are talking you have triggers of any kind, or just want me to remember something, PLEASE LET ME KNOW EARLY! I'll either add it to your friend note or pin the message so I won't forget.
+
+---
+
+I also talk a lot, send images, will be active and random, and can be sort of freaky at times! If I do something you're uncomfortable with, lmk and I'll stop!!
+
+---
+
+Also yes,,, I know how to code I am just lazy
+
+---
+
+Finally, I allow INSPO!! NOT COPIES!! Feel free to take inspo i do not mind!
